@@ -4,7 +4,7 @@
 - 🗼 Master's student at The University of Tokyo  
   
 
-- 💻 Prosepective software engineer  
+- 💻 Software Development  
   
 
 - 💠 Speedcuber focus on the 3x3x3, 3x3x3 One-Handed and Pyraminx [(WCA ID: 2018CHEN87)](https://www.worldcubeassociation.org/persons/2018CHEN87)  
